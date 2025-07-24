@@ -7,5 +7,5 @@ Stajdan Merhabalarrr
 
 #Zorunlu Staj iyidir
 
-Ofiste aktif ol
+
 
